@@ -1,1 +1,1 @@
-## Lab05_Ex2.2: https://youtube.com/shorts/FuC2Jf0Z_O4?feature=share
+https://github.com/Tran-Minh-Hieu0/CT005_Lab05#ct005_lab05_tr%E1%BA%A7n-minh-hi%E1%BA%BFu_b2613555_di2696a1
